@@ -1,0 +1,2 @@
+# adamr-student
+ignorujte to!
